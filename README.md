@@ -1,5 +1,2 @@
 # hello-world
-
-Hi Humans,
-
-This is a testfile.
+Kijkennnnn of ie ook dit soort veranderingen toestaat :D
